@@ -1,1 +1,0 @@
-# azrielbaruna.github.io
